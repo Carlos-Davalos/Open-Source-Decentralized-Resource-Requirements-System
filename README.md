@@ -4,4 +4,7 @@ The fund Would pay for needed goods and Services of people universally. The fund
 The Resources that the fund would provide would be through the passive income generated from the fund and every decade there can be an automatic selling of a % of all the assets to pay a lump sum and increase future passive income for people linked to the fund that can acquire funds, resources, goods and services.
 The Goods and services primarily required are Food, Water, Utilities, Housing, Internet/wifi, Transportation, and necessary Valid medical fees. They could also be distributed passive funds apart from the goods and services. At first maybe only the people that contribute and are linked to the system would benefit to
 bring in the necessary people to keep scaling it universally to a global level and beyond if possible.
-
+-I would like there to be companies we have in the future that hire people from the funds to deliver these goods and services and make sure they are available. If Possible Current present day companies would be able to donate their services for hopefully tax deductions if we could somehow get a law to pass that does that for the good of humanity.
+-We could have say Utilities companies both future of our own and present day ones that exist that can collaborate.
+-we could have our own basic internet service company that can be providing internet service to people. The more people with internet the more people are able to generate income from many online forms/ways. They can Generate income from the apps linked to the fund or jobs they can acquire locally through the open source apps provided.
+-We can have our own network
