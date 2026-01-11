@@ -7,4 +7,7 @@ bring in the necessary people to keep scaling it universally to a global level a
 -I would like there to be companies we have in the future that hire people from the funds to deliver these goods and services and make sure they are available. If Possible Current present day companies would be able to donate their services for hopefully tax deductions if we could somehow get a law to pass that does that for the good of humanity.
 -We could have say Utilities companies both future of our own and present day ones that exist that can collaborate.
 -we could have our own basic internet service company that can be providing internet service to people. The more people with internet the more people are able to generate income from many online forms/ways. They can Generate income from the apps linked to the fund or jobs they can acquire locally through the open source apps provided.
--We can have our own network
+-We can have our own network of flow of goods and services to people wherever they are.
+-We would Need a universally viable app store for the apps and we can make use of current app stores and we can have our own open source app store with open source apps that contribute the funds to the portfolio fund.
+i Understand we will need to possibly pay taxes unless ofcourse we would be considered some form of a charitable system to be exempt from that since no one person will be in charge and control this themselves like a boss or higher up that would benefit financially from this.
+
